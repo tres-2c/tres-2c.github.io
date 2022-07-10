@@ -1,1 +1,1 @@
-# TrES-2c.github.io
+# TrES-2c
